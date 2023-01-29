@@ -1,0 +1,1 @@
+# reMARK app privacy policy
